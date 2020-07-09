@@ -8,6 +8,6 @@
 + [Практика самоиисселедования](https://github.com/helix4d/advita-ru/blob/master/self-examination_practice.md)
 + [Ежедневная практика](https://github.com/helix4d/advita-ru/blob/master/daily_practice.md)
 + [Литература](https://github.com/helix4d/advita-ru/blob/master/list_of_references)
-
++ [Цитаты]
 # <a name="1head">2020</a>
 
