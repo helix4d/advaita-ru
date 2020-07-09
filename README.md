@@ -6,6 +6,7 @@
 3. О свободе воли.
 4. Практика самоиисселедования.
 5. Ежедневная практика.
+
 [Литература](https://github.com/helix4d/advita-ru/blob/master/list_of_references)
 
 # <a name="1head">Первый заголовок</a>
