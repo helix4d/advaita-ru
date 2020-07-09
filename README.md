@@ -2,7 +2,7 @@
 
 #### Содержание
 + [Введение](https://github.com/helix4d/advita-ru/blob/master/intro.md)
-+ [Кто Я?]
++ [Кто Я?](https://github.com/helix4d/advita-ru/blob/master/who_i_am.md)
 + [О свободе воли]
 + [Практика самоиисселедования]
 + [Ежедневная практика]
