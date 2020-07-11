@@ -19,6 +19,8 @@
 
 
 ## Группы в социальных сетях 
++ [Шри Рамана Махарши](https://vk.com/shri_ramana)
++ [Руперт Спайра. Суть недвойственности](https://vk.com/public_rupert_spira)
 + [Роберт Адамс. Исповедь джняни](https://vk.com/mtmind)
 + [Шри Нисаргадатта Махарадж. Ответы и наставления](https://vk.com/nisargadattamaharaj)
 + [Даниил Зуев. Безмолвие](https://vk.com/danielzuev_bezmolvie)
