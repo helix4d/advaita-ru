@@ -1,8 +1,7 @@
 # Адвайта
 Репозиторий русскоязычной информации об адвайте.
 
-Связь с автором <img src="http://safemail.justlikeed.net/e/0b987769cc094e2d2670de3179c4b91a.png" border="0" align="absbottom" title="Email image created with safemail.justlikeed.net">
-
+Связь с автором <a href="http://safemail.justlikeed.net/" target="_blank"><img src="http://safemail.justlikeed.net/e/0b987769cc094e2d2670de3179c4b91a.png" border="0" align="absbottom" title="Email image created with safemail.justlikeed.net"></a>
 
 ## Сайты
 + [Мир Адвайты](http://advaitaworld.com/)
