@@ -31,6 +31,7 @@
 + [Роберт Адамс. Исповедь джняни](https://vk.com/mtmind)
 + [Шри Нисаргадатта Махарадж. Ответы и наставления](https://vk.com/nisargadattamaharaj)
 + [Даниил Зуев. Безмолвие](https://vk.com/danielzuev_bezmolvie)
++ [Счастье есть! AkashaGroup](https://vk.com/akasha999world)
 
 
 ## Телеграм каналы
@@ -41,6 +42,7 @@
 + [Selfrealization - канал форума "К вопросам о самореализации"](https://www.youtube.com/channel/UCPrggD4EDi8I76pBusBlJww)
 + [Евгений Багаев - Видение, Осознание и Понимание](https://www.youtube.com/user/ponimanie/)
 + [Даниил Зуев](https://www.youtube.com/c/DanZuev/)
++ [Лиза Акаша](https://www.youtube.com/channel/UCqOjnh5cVRbc0VBR8EyPhHQ)
 + [Юрий Менячихин (Сиддхартха)](https://www.youtube.com/c/sidhintube/)
 + [Ovalov.video (практика наблюдения за умом. О свободе воли)](https://www.youtube.com/channel/UCFDNIkcERwUiptob6IkSb9g)
 
@@ -69,7 +71,7 @@
 В настоящее время Муджи регулярно проводит сатсанги в Монте-Сахаджа (Португалия), где он живет. 
 Он также регулярно путешествует по Европе, Америке и Индии, где проводит сатсанги, встречи и ретриты. 
 ```
-
+[Лиза Акаша (Елизавета Бородулина)](https://m.vk.com/15akasha)
 
 ### Фильмы, которые упоминает в своих книгах о просветлении Джед Маккена
 ```
