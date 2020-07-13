@@ -27,6 +27,10 @@
 
 
 ## Телеграм каналы
+
+
+## Видео
+<i class="fab fa-youtube"></i>
  
 
 + [Литература](https://github.com/helix4d/advita-ru/blob/master/list_of_references)
