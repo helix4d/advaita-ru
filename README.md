@@ -54,6 +54,7 @@
 ### Каналы Youtube
 + [Selfrealization - канал форума "К вопросам о самореализации"](https://www.youtube.com/channel/UCPrggD4EDi8I76pBusBlJww)
 + [Евгений Багаев - Видение, Осознание и Понимание](https://www.youtube.com/user/ponimanie/)
++ [Сатсанг с Муджи - Mooji in Russian](https://www.youtube.com/c/Moojirusskij)
 + [Даниил Зуев](https://www.youtube.com/c/DanZuev/)
 + [Лиза Акаша](https://www.youtube.com/channel/UCqOjnh5cVRbc0VBR8EyPhHQ)
 + [Юрий Менячихин (Сиддхартха)](https://www.youtube.com/c/sidhintube/)
