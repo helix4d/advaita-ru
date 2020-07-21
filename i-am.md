@@ -38,124 +38,56 @@ I AM
 
 ### Семена Сознания
 
-(5). The ‘I am’ is the sum total of everything you perceive. It appears spontaneously and disappears, it has no dwelling place. It is like a dream world. Do not try to be something, even a spiritual person. You are the manifested. The tree is already there in the seed. Such is the ‘I am’. Just see it as it is.
-
-
-Чувство 'Я-есть' является суммой общего количества того, что вы ощущаете.
-
+5. Чувство 'Я-есть' является суммой общего количества того, что вы ощущаете.
 Оно возникает и исчезает спонтанно, оно не имеет никакого места существования. Оно похоже на придуманный мир.
-
 Не пытайтесь быть кем-то, даже духовной личностью. Вы есть манифестация (проявление).
-
 Дерево уже там, в семени, как 'я-есть'. Просто наблюдайте это, как это есть.
 
 
-_ _________________ _
-
-(50). In my original true state I have no form and no thoughts. I didn’t know I was, but suddenly another state appeared in which I had a form and thought, ‘I am’. How did this appear? The one who explains how these appearances have come about is the Sat-Guru.
-
-
-В моем естественном истинном состоянии я не имею никакой формы и никаких мыслей.
-
+50. В моем естественном истинном состоянии я не имею никакой формы и никаких мыслей.
 Я не знал, что я был, но внезапно другое состояние появилось, в котором я получил форму и мысль 'я-есть'.
-
 Как это появлялось? Тот, кто объясняет, как случилось это появление, тот Сатгуру.
 
 
-_ _________________ _
-
-(61). The message ‘I am’ does not have any form, design, or color. So long as ‘I am’is, this experience of manifestation is, once that ‘I amness’ disappears there is no experience. Once this message ‘I am’ appears in insect, animal, or human being, immediately the manifestation occurs with that beingness. Inside and outside is full of manifestation. These talks are not for general consumption, for the masses.
-
-
-Сообщение 'я-есть' не имеет никакой формы, дизайна или цвета.
-
-Пока существует 'я есть', существует этот опыт проявления,
-
-однажды это 'я есть' исчезает, и больше нет никакого опыта.
-
+61. Сообщение 'я-есть' не имеет никакой формы, дизайна или цвета.
+Пока существует 'я есть', существует этот опыт проявления, однажды это 'я есть' исчезает, и больше нет никакого опыта.
 Как только это сообщение 'я-есть', проявляется в насекомом, животном, или человеческом существовании, немедленно происходит проявление, которое становится бытиём.
-
 Внутри и снаружи всё наполнено этой манифестацией.
-
 Этот предмет разговора не для общего обсуждения, не для масс.
 
 
-_ _________________ _
-
-(63). The knowledge ‘I am’ is the same, whether it is an insect, worm, human being or an avatar (being of the highest order); the basic consciousness is the same in all of these.
+63. Знание 'я-есть' остается тем же самым, проявлено ли оно в насекомом, черве, человеке или аватаре(- самым высшем бытии); основное сознание то же самое во всех них.
 
 
-Знание 'я-есть' остается тем же самым, проявлено ли оно в насекомом, черве, человеке или аватаре(- самым высшем бытии); основное сознание то же самое во всех них.
-
-
-_ _________________ _
-
-(64). There is no reason why this consciousness came about, but once it comes about, it cannot stand still, consciousness is the same as movement. That movement takes place through the three gunas, which are inherent in this knowledge ‘I am’. All movement takes place through these gunas and this consciousness keeps on humming.
-
-
-Нет никакой причины для появления этого сознания, но как только это появляется, это не может остановиться, сознание – то же самое как движение.
+64. Нет никакой причины для появления этого сознания, но как только это появляется, это не может остановиться, сознание – то же самое как движение.
 Это движение действует через три гуны, которые являются неотъемлимыми от знания 'я-есть'.
 Все движение имеет место через эти гуны, и это сознание продолжает жужжать.
 
 
-_ _________________ _
-
-(66). My Guru pointed out to me that originally I had nothing to do with all this and all I have with which to solve this mystery of life is the knowledge ‘I am’; without that there is nothing. So I got hold of it, as my Guru told me, and then I wanted to find out how this body aspect came about without my knowledge and how alone on that any other knowledge come about, and that again is a result of five elements. Therefore, whatever anybody thinks he has is sheer ignorance, and I know it from my own experience.
-
-
-Мой Гуру указал мне, что изначально я не имел никакого отношения к всему этому,
-и всё что я имею, чтобы решить эту тайну жизни – это знание «я есть»; без этого нет ничего.
-Таким образом я ухватился за это, как велел мой Гуру,
-и затем я захотел выяснить, как этот аспект тела появился без моего знания, и как приходит остальное знание, и это, опять же, является результатом пяти элементов.
-
+66. Мой Гуру указал мне, что изначально я не имел никакого отношения к всему этому,и всё что я имею, чтобы решить эту тайну жизни – это знание «я есть»; без этого нет ничего.
+Таким образом я ухватился за это, как велел мой Гуру, и затем я захотел выяснить, как этот аспект тела появился без моего знания, и как приходит остальное знание, и это, опять же, является результатом пяти элементов.
 Поэтому, независимо от того, что любой думает, что он знает, – это явное заблуждение, и я знаю это по моему собственному опыту.
 
 
-_ _________________ _
-
-(67). If this is ignorance, then where is my beingness? My beingness is in a town which is no-town, in a place which is no-place. How did this come about? Because of this knowledge ‘I am’, which is ignorance. Maya, which came about suddenly, without my asking. Once having come about, this Maya liked what it had created and it wanted that beingness to last for all time. Maya embraced it with such fierceness, that, at any cost, it wants to prolong the existence of that beingness as long as it can.
-
-
-Если это – заблуждение, то, где моё бытиё? Моё бытиё находится в месте, которое не место, в месте, которое без места.
+67. Если это – заблуждение, то, где моё бытиё? Моё бытиё находится в месте, которое не место, в месте, которое без места.
 Как это появилось? Из-за этого знания 'я-есть', которое является заблуждением.
 Майя, которая появилась внезапно, без моей просьбы.
 Однажды появившись, эта майя полюбила то, что создала, и требует, чтобы это бытиё длилось вечно. Майя ухватила это с такой свирепостью, что любой ценой хочет продлить существование этого бытия, так долго, как может.
 
 
-_ _________________ _
-
-(68). The beingness, the ‘I am’, is merely an instrument, it is not you. It is an instrument of knowledge, and that great instrument of knowledge is called God, which is the quality of the food essence. Out of that alone you will be able to see everything else.
-
-
-Бытиё, 'я-есть', является просто инструментом, это не Вы.
+68. Бытиё, 'я-есть', является просто инструментом, это не Вы.
 Это инструмент познания, и это познание называют Богом, который является качеством сущности пищи.
 Без этого всего вы один будете в состоянии видеть все остальное.
 
 
-_ _________________ _
-
-(69). One who is completely rid of coming and going, and finally, one who is completely rid of one’s very own concept that ‘I am’, is completely liberated.
+69. Тот, кто полностью избавлен от появления и исчезновения, и наконец, тот, кто полностью избавлен от очень собственного понятия 'я-есть', тот полностью освобожден.
 
 
-Тот, кто полностью избавлен от появления и исчезновения, и наконец, тот, кто полностью избавлен от очень собственного понятия 'я-есть', тот полностью освобожден.
-
-
-_ _________________ _
-
-(70). Brahman means the emanation of the world, simultaneously confirming that ‘I am’. In this Brahman everything is illusion, but who understands that? The principle that understands, realizes, and witnesses is the ‘Parabrahman’. Witnessing happens to the ‘Parabrahman’. In this manifest state everything is ever changing, nothing is permanent, and all is illusion.
-
-
-Брахман подразумевает эманацию мира, одновременно подтверждая, что 'я есть'.
-
+70. Брахман подразумевает эманацию мира, одновременно подтверждая, что 'я есть'.
 В этом Брахмане всё есть иллюзия, но кто понимает это?
-
 Принцип, который понимает, распознаёт и свидетельствует, это – 'Парабрахман'.
-
 Наблюдение случается с 'Парабрахманом'.
-
 В этом проявленном всё всегда изменяется, ничто не постоянно, и все – иллюзия.
-
-
 
 
 80. Вы должны идти внутрь. Какие бы великие события ни происходили в природе, не смотря на их мощь, они исчезают прямо здесь. Эти ситуации появляются и исчезают. То, что выглядит плотным, фактически абстрактно;
