@@ -28,9 +28,6 @@ I AM
 
 
 
-
-
-"
 ### 2. «Seeds of Consciousness», с 80 по 149 (Семена Сознания), edited by Jean Dunn.
 
 
@@ -661,14 +658,11 @@ Cмотрите в Ваш корень, в детское сознание, и �
 Пребывайте в тишине, мире, стабильности.
 
 
-Quotes of Nisargadatta Maharaj
-from 'Seeds Of Consciousness'
+### Quotes of Nisargadatta Maharaj from 'Seeds Of Consciousness'
 
 Compiled by Pradeep Apte
 
 перевод Лакшми
-
-Источник​
 
 _ _________________ _
 
@@ -792,14 +786,11 @@ _ _________________ _
 
 
 
-Quotes of Nisargadatta Maharaj
-from 'Prior to Consciousness'
+### Quotes of Nisargadatta Maharaj from 'Prior to Consciousness'
 
 Compiled by Pradeep Apte
 
 перевод Лакшми
-
-Источник​
 
 _ _________________ _
 
@@ -1017,6 +1008,8 @@ _ _________________ _
 
 
 (25). Investigate that concept ‘I am.’ In the process of trying to find out your identity or this spiritual search, all will happen in the realm of this consciousness. You finally stumble on, or culminate into the Absolute ‘Parabrahman’ state, which is desireless.
+
+### Избранные цитаты 
 
 
 Расследуйте эту концепцию 'я есть'.
